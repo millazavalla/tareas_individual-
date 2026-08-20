@@ -4,13 +4,13 @@ El artículo parte de un dato muy importante: los españoles de entre 18 y 29 a�
 
 *La dificultad para acceder a una vivienda*: el 30% de los jóvenes considera la vivienda uno de los tres principales problemas del país. Además, desde 2018 el precio de la vivienda en España habría aumentado alrededor de un 50%.
 
-+La inmigración*: Algunos jóvenes consideran que existe mucha inmigración irregular y la culpan de los problemas de inseguridad, el acceso a las ayudas sociales o la vivienda. Pero el reportaje no presenta estas afirmaciones simplemente como hechos, por ejemplo, cuestiona la idea de que los extranjeros reciben desproporcionadamente todas las ayudas sociales, con DATOS.
+*La inmigración*: Algunos jóvenes consideran que existe mucha inmigración irregular y la culpan de los problemas de inseguridad, el acceso a las ayudas sociales o la vivienda. Pero el reportaje no presenta estas afirmaciones simplemente como hechos, por ejemplo, cuestiona la idea de que los extranjeros reciben desproporcionadamente todas las ayudas sociales, con DATOS.
 
 *Falta de oportunidades y precariedad*
 
 *Desconfianza hacia la política tradicional*: Sienten que los partidos tradicionales no están solucionando sus problemas.
 
-El atractivo de discursos más simples y radicales
+*El atractivo de discursos más simples y radicales*
 
 Otro elemento interesante del reportaje es que nos dicen que alrededor del 80% de los jóvenes españoles utiliza las redes sociales para informarse, por encima de la televisión y otros medios. Esto permite que partidos y movimientos políticos lleguen directamente a los jóvenes mediante TikTok, Instagram, YouTube, etc., utilizando mensajes mucho más breves y fáciles de consumir. Al final, el artículo no solo plantea “los jóvenes se están volviendo de derecha”, sino que explica qué condiciones sociales y económicas están detrás de ese cambio y cómo los discursos políticos se "aprovechan" de eso.
 
